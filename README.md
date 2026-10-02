@@ -1,2 +1,1 @@
-# QuranKareem
-Privacy Policy for QuranKareem
+Privacy Policy HTML ɗin a can
